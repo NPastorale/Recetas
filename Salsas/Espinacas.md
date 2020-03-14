@@ -1,7 +1,7 @@
 # Ingredientes
 
 - 1 atado de espinacas frescas o 1 paquete de espinacas congeladas
-- 200cc de crema de leche
+- 200ml de crema de leche
 - 50g de manteca
 - 1 cebolla mediana, cortada en trocitos muy pequeños
 - 1 diente de ajo triturado
