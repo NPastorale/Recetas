@@ -5,7 +5,7 @@
 - 500ml de leche
 - 30gr de manteca
 
-# Preparación
+# Instrucciones
 
 1. Colocar en un bowl los huevos y mezclar
 
