@@ -1,0 +1,17 @@
+# Ingredientes
+
+- 400g harina
+- 200ml agua tibia
+- 15g levadura
+- 2 cucharaditas aceita de oliva
+- Sal
+
+# Instrucciones
+
+1.  Colocar la harina en un bowl
+2.  Mezclar los 200ml de agua tibia con la levadura y la sal a gusto
+3.  Incorporar el agua y el aceite de oliva a la harina
+4.  Amasar hasta que quede lisa y hacerla un bollo
+5.  En el mismo bowl colocar aceite de oliva y el bollo de masa
+6.  Dejar levar por aproximadamente 30 minutos. Si el ambiente está frío, por 45 minutos
+7.  Dar forma en el molde y dejar levar por 15 minutos aproximadamente
