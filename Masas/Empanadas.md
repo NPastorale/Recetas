@@ -6,7 +6,7 @@
 - 50g manteca
 - 1 cucharada al ras de sal
 
-Sí la masa es para fritar reemplazar la manteca por 50ml de aceite
+Si la masa es para fritar reemplazar la manteca por 50ml de aceite
 
 # Instrucciones
 
